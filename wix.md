@@ -80,3 +80,25 @@
 # Тепер наш сайт повністю готовий
 ---
 ## Сподіваюся мій туторіал був корисним!
+
+---
+# Додаткові матеріали
+---
+ 
+Ми пропонуємо вам готові картинки для того щоб ви підставили їх на свій сайт
+
+[Фото 1](https://drive.google.com/file/d/1Y4jXbATMc5tcWVkMDDI4i4iA-Bwl-uDt/view?usp=sharing)
+
+[Фото 2](https://drive.google.com/file/d/1xlGUbSyLacwAiZgD4yzHYtTMSgDxCYxU/view?usp=sharing)
+
+[Фото 3](https://drive.google.com/file/d/1DA_lE4SFtZGexZNEb9M58us3F8hr3fBr/view?usp=sharing)
+
+[Фото 4](https://drive.google.com/file/d/1vTvSMoDTSKAjGuQybbqtLc0WXl-U6WCK/view?usp=sharing)
+
+[Фото 5](https://drive.google.com/file/d/1xAoNHrAuqLUu8Hd0opbmdpuOYyCDLHlS/view?usp=sharing)
+
+[Фото 6](https://drive.google.com/file/d/1gX8Gr_K4nEgW3xK1jz0ZAKZ5Lmvf83X7/view?usp=sharing)
+
+[Фото 7](https://drive.google.com/file/d/1BaZwV9d5ix0g2gh-QDlovuu2b_HibWRJ/view?usp=sharing)
+
+[Фото 8](https://drive.google.com/file/d/1SzMJLnoqmcFDYKqEXNdreUaGd5QfMfd4/view?usp=sharing)
